@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning coding..
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me harshakhandwekar101@gmail.com
-- insta:heleen_2004_10
 - 😄 Pronouns📸
 - ⚡ Fun fact: ...
 
